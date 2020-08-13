@@ -1,3 +1,3 @@
 # Gaui
 
-[LinkedIn](https://is.linkedin.com/in/gudjonj) / [Twitter](https://twitter.com/gauiis)
+[LinkedIn](https://is.linkedin.com/in/gaui) / [Twitter](https://twitter.com/gauiis)
